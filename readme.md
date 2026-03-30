@@ -169,8 +169,8 @@ Day 3 (Revision)
 
 ## 👨‍💻 Author
 
-**Rasesh Varshney**
-📌 Registration Number: 25BCE10299
+**Kunal Mamgai**
+📌 Registration Number: 25BCE10278
 
 ---
 
